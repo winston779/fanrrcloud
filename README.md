@@ -12,11 +12,13 @@ SS协议，多端使用，负载均衡 多人使用流畅不卡，靠近江南�
 
 ## Fanrr Cloud优惠码
 
-AFF5优惠卷只限半年,年付
+五一活动七折优惠券：GenshinMaster 有效期到5号
 
-限量八折优惠卷：WFELMaAR
+月付季付8折优惠：Fanrrcloud8
 
-截止2-13日23/30，全套餐可用
+年付半年付7折优惠：Fanrrcloud7
+
+一次性套餐85折优惠：Fanrrcloud85
 
 ## Fanrr Cloud价格
 
