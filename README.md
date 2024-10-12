@@ -1,6 +1,6 @@
 # Fanrr Cloud机场官网地址
 
-最新地址：[fanrr.cc](https://fanrr.cc/#/register?code=OrtVeyGP)
+最新地址：[fanrr.cc](https://www.fanrr.sbs/#/register?code=OrtVeyGP)
 
 ## Fanrr Cloud介绍
 
